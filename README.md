@@ -1,4 +1,4 @@
-Creative Commons Zero v1.0 Universal
+
 # COREEXON
 
 **Nom d'artiste officiel — créé en 2025**
